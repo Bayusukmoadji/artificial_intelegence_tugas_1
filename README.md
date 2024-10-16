@@ -1,0 +1,1 @@
+# artificial_intelegence_tugas_1
